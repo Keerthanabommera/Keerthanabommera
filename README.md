@@ -29,7 +29,8 @@
 ---
 
 ### 📬 Reach Me Out
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-profile-url)  
+
+- 🔗 [Linkedin](https://www.linkedin.com/in/keerthana-bommera)  
 - ✉ [E-mail](bommerakeerthana26@gmail.com)
   
 ---
